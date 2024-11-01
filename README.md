@@ -1,0 +1,2 @@
+- @pvsf on discord
+- guns.lol/pvs
